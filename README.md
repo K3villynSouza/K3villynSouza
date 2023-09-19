@@ -13,5 +13,3 @@
 - aprendendo linguagens de programação.
 
 🌠 _para entrar em contato precisa me dar doce_ ⭐
-
-![.](https://tenor.com/pt-BR/view/cat-cute-hug-huggies-kozumexzumire-gif-19555995)
