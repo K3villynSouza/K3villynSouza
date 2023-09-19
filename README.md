@@ -6,9 +6,7 @@
 
 ♎
 
-**K3villynSouza/K3villynSouza** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-- vivendo e aprendendo.👩‍🎓
+**K3villynSouza/K3villynSouza**  ✨ _special_ ✨ 
 - amo musicas.🎵
 - adoro meus amigo.📱
 - sou feliz do meu jeito.🎧
