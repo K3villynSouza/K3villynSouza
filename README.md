@@ -15,4 +15,4 @@
 
 🌠 _para entrar em contato precisa me dar doce_ ⭐
 
-![](https://tenor.com/pt-BR/view/cat-love-cute-kitten-gif-16313656)
+![](https://tenor.com/bgB5E.gif)
