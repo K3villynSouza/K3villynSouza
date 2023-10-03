@@ -15,4 +15,4 @@
 
 🌠 _para entrar em contato precisa me dar doce_ ⭐
 
-![.](https://tenor.com/pt-BR/view/excited-gif-9761614668628461285)
+![](https://tenor.com/pt-BR/view/excited-gif-9761614668628461285)
