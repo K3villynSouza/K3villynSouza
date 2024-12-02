@@ -1,4 +1,4 @@
-### Sou quem sou me respeitar familia! 💙🎵🐚
+### Sou quem sou, me respeite! 💙🎵🐚
 
 🇧🇷BR
 
@@ -8,11 +8,11 @@
 
 ✨ _special_ ✨ 
 - amo musicas.🎵
-- adoro meus amigo.📱
-- sou feliz do meu jeito.🎧
-- adoro desenhar.✏️
-- aprendendo linguagens de programação.
+- só suporto meus amigos.📱
+- só sou feliz quando estou comendo doce.🎧
+- gosto de fazer desenhos e faço encomendas.✏️
+- aprendendo programação e simplesmente existindo.
 
-🌠 _para entrar em contato precisa me dar doce_ ⭐
+🌠 _para entrar em contato não seja chato_ ⭐
 
 ![](https://tenor.com/bgB5E.gif)
