@@ -1,4 +1,4 @@
-### Sou quem sou, me respeite! 💙🎵🐚
+### Futura empreendedora 💙🎵🐚
 
 🇧🇷BR
 
@@ -7,11 +7,11 @@
 ♎
 
 ✨ _special_ ✨ 
-- amo musicas.🎵
-- só suporto meus amigos.📱
-- só sou feliz quando estou comendo doce.🎧
+- gosto de musicas.🎵
+- quantidade razoável de amigos📱
+- só sou feliz quando estou com Deus.🎧
 - gosto de fazer desenhos e faço encomendas.✏️
-- aprendendo programação e simplesmente existindo.
+- aprendendo programação fazendo cursos etc...
 
 🌠 _para entrar em contato não seja chato_ ⭐
 
